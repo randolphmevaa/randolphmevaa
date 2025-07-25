@@ -40,9 +40,9 @@ We specialize in blending growth marketing with custom digital solutions—from 
 🤝 **Let’s Collaborate**  
 Whether you're a startup, scale-up, or enterprise, we build solutions that grow with you.
 
-📬 Reach us: **hello@markave.com**  
+📬 Reach us: **contact@markave.agency**  
 🌐 Visit us: [https://markave.agency](https://markave.agency)  
-🔗 LinkedIn: [Markave Agency](https://linkedin.com/company/markave) *(if available)*
+🔗 LinkedIn: [Markave Agency](https://linkedin.com/company/markave)
 
 ---
 
